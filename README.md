@@ -1,1 +1,1 @@
-ucze sie 
+ucze sie i sciongam od reqsa mam nadzieje ze sie nie obrazisz 
