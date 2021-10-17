@@ -1,1 +1,1 @@
-siemanko 
+ucze sie 
